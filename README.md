@@ -1,0 +1,2 @@
+# Blue-Archive---MASSIVE-Lore-Project-Legacy-of-Light-and-Shadow---868-Page-Report--Fan-Fiction
+Join the discussion on Reddit:  https://www.reddit.com/r/BlueArchive/comments/1o3hfwv/comment/niv46ff/?utm_source=share&amp;utm_medium=web3x&amp;utm_name=web3xcss&amp;utm_term=1&amp;utm_content=share_button  Official Team Contact To demonstrate the seriousness of the project:  **LINK to X (Twitter):*   https://x.com/90JEduardo/status/1975080450982056383
